@@ -5,7 +5,7 @@ Take a look around and let me know if you have any questions, comments and/or su
 :)
   
 - 🌱 Programming languages:...Python, HTML, CSS and Javascript
-- 👯 I’m looking to collaborate on...anything and everything!
+- 👯 I’m looking to collaborate on...things that peak my interest and challenge me.
 - 💬 Ask me about...my tesla :)
 - ⚡ Fun fact:...I can't really think of a fun fact...I used to be an actor, I was in some movies, a music video and a commercial...oh and my friend is Drake's cousin  lol
 - 📫 How to reach me: ...EricJB77@gmail.com
